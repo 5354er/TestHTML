@@ -1,3 +1,2 @@
 # HTML-course
-my learning files
-Hi Everyone!
+I wish i was a geniuos
